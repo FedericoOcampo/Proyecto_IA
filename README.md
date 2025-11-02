@@ -3,4 +3,4 @@ FEDERICO OCAMPO QUICENO - BIOINGENIERÍA - 1000763227
 
 JULIANA PRECIADO CARRANZA - BIOINGENIERÍA - 1002331092
 
-Video de youtube: 
+Video de youtube: https://www.youtube.com/watch?v=-tL2Pkpa7eE
